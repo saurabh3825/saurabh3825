@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Saurabh Kumar 
 - 👀 I’m interested in Tech Things 
 - 🌱 I’m currently learning Coding 
-- 💞️ I’m looking to collaborate on
+- 💞️ I’m looking to collaborate....
 - 📫 You can reach me on instagram @saurabh._.0
 
 <!---
